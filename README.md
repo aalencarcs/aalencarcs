@@ -1,4 +1,4 @@
-# Wellcome to my profile! 👋
+# Welcome to my profile! 👋
 
 
  ### My name is Arthur Alencar 👨🇧🇷
